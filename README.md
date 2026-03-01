@@ -5,9 +5,9 @@ Product Leader · Platform Modernization · Digital Transformation
 
 🚀 **About Me :**
 
-Product leader with 14+ years driving digital transformation across Telecom · Retail · SaaS · Energy ecosystems.
+Product leader with 14+ years driving digital transformation across E-Commerce . Telecom · Retail · SaaS · Energy ecosystems.
 
-I turn complex business challenges into scalable, API-driven solutions that deliver measurable revenue growth and exceptional customer experiences.
+I turn complex business challenges into scalable solutions that deliver measurable revenue growth and exceptional customer experiences.
 
 🏛️ Harvard Business School — CLIMB Leadership Program (2024–2025)
 
