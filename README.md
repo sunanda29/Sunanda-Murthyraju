@@ -1,5 +1,6 @@
 # Sunanda-Murthyraju
-Hi, I'm Sunanda Murthyraju 👋
+I'm Sunanda Murthyraju 👋
+
 Product Leader · Platform Modernization · Digital Transformation
 
 🚀 **About Me :**
